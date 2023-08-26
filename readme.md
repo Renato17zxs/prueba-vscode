@@ -1,9 +1,12 @@
-Existen varios debates sobre desde cuándo hay vida humana en Perú. Algunos expertos creen que los humanos poblaron los Andes ya en el año 14 000 a.C.
- (y existe al menos un informe académico que asegura incluso una fecha anterior). 
- Sin embargo, la prueba arqueológica más concluyente sitúa a los humanos en esa zona alrededor del 8000 a.C. 
- En las cuevas de Lauricocha (cerca de Huánuco) y Toquepala (a las afueras de Tacna) hay pinturas que representan escenas de caza de aquel tiempo. 
- En la última se ve un grupo de cazadores que acorralan y matan lo que parece ser un grupo de camélidos.
- En el año 4000 a.C. se empezaron a domesticar llamas y cobayas en el altiplano y posteriormente comenzó el cultivo de patatas, calabazas, algodón, lúcuma 
- (una fruta andina terrosa), quínoa, maíz y judías. En el 2500 a.C., aquellos cazadores-recolectores se agruparon en asentamientos en la costa del Pacífico 
- y sobrevivieron gracias a la pesca y la agricultura. Los primitivos peruanos habitaban sencillas viviendas de una habitación, pero también construyeron muchas estructuras para 
- sus prácticas ceremoniales o rituales. Algunas de las más antiguas, unos templos en plataformas elevadas frente al océano que contienen enterramientos humanos, datan del 3000 a.C.
+The Most Delicious Food In The World
+If anyone is looking for a new delicious dish, I have a suggestion. Aubergine in tomato sauce. It’s easy to make and really yummy.
+It’s special in different ways. For me personally, it reminds me of my first holiday with my girlfriend last year. It was the best holiday I’ve ever had and every time I cook
+ it, we remember how much fun we had. We tried it for the first time when we were in Rome and then ordered it wherever we went to see where they make the best one. It originally 
+ comes from the north of Italy, but you can eat it all over the country now. My vegetarian friends love it. I was always a little nervous when they came around because I have 
+ little experience cooking without meat or fish, but this is something everyone can enjoy.
+All you need is tomatoes, basil, garlic, aubergines, olive oil and some parmesan cheese. Just look up the recipe on the Internet. It’s not hard to make so even if you’re not an 
+experienced cook, you can prepare something healthy and delicious for you and your friends.
+Puedes encontrar más ejercicios sobre el article B2 First (FCE) en nuestra plataforma.
+Si quieres practicar todas las pruebas de Writing, puedes hacer nuestro simulacro de examen Writing B2 Cambridge. Para una práctica completa, ofrecemos nuestros exámenes g
+ratuitos B2 First para practicar. Para profundizar tu aprendizaje, crea una cuenta gratuita en nuestra plataforma y disfrute de ejercicios interactivos y simulacros de examen.
+Pero ¿cómo atraemos al lector? ¿Qué elementos va a buscar el examinador para darnos una mejor nota? Para que nuestro artículo enganche y quede perfecto, es recomendable incluir diferentes tipos de expresiones.
